@@ -86,6 +86,7 @@ The old man had taught the boy to fish and the boy loved him.
 
 　　
 “Why not?“ the old man said. “Between fishermen.“
+
 何乐而不为呢？老人说，和捕鱼人们一起喝酒。
 
 > “有什么不行呢？” 老人说。 “大家都是渔夫。”
@@ -107,53 +108,78 @@ When the wind was in the east a smell came across the harbour from the shark fac
 
 
 “山蒂埃戈，” 孩子说。
-　　
+
+
 “Yes,“ the old man said. He was holding his glass and thinking of many years ago.
 
+
 “嗳，” 老人说。他手握酒杯，正想着好多年前的事。
+
 　　
 “Can I go out to get sardines for you for tomorrow?“
 
+
 “我去弄点沙丁鱼，给你明天用罢？”
+
 　　
 “No. Go and play baseball. I can still row and Rogelio will throw the net.“
+
 　　
 “不用了。去打棒球吧。我还能划船，罗格略会帮我撒网。”
+
 　　
 “I would like to go. If I cannot fish with you, I would like to serve in some way.“
 
+
 “我很想去。如果不能和你一起捕鱼，我想多少帮你做点事。”
+
 
 > 我很想去，如果我不能够跟你一块儿打鱼，我想给你做点什么别的事。
 
+
 “You bought me a beer,“ the old man said. “You are already a man.“
 
+
 “你请我吃了杯啤酒，”老人说。“你已经是个大人啦。”
+
 　　
 “How old was I when you first took me in a boat?“
 
+
 “第一回跟你捕鱼，我有多大？”
+
 
 > 你第一次带我到船上去的时候，我几岁?
 
+
 “Five and you nearly were killed when I brought the fish in too green and he nearly tore the boat to pieces. Can you remember?“
+
 　　
 “你五岁。有一次我把一条鱼拖上船，它胡蹦乱跳，差一点把船弄散架，你差一点送了命。还记得吗？”
 
+
 > 五岁。你差一点送了命，那天还没到时候，我就把鱼拖上来，他差点把船弄碎，你记得吗？
 
+
 “I can remember the tail slapping and banging and the thwart breaking and the noise of the clubbing. I can remember you throwing me into the bow where the wet coiled lines were and feeling the whole boat shiver and the noise of you clubbing him like chopping a tree down and the sweat blood smell all over me.“
+
 　　
 “我记得，它的尾巴使劲拍打着，撞击着，船的横梁断了，棍棒敲击的声音。我还记得你把我扔到船头盘绕的钩丝那，感觉整条船都在颤抖，你敲击那鱼，就像在劈砍一棵树，我周围都是血汗味。”
+
 
 > 我记得那尾巴拍拍砰砰的打着，划船人的座位也破了，还有你用木棒打他的声音。我记得你把我丢到船头去，那儿堆着湿淋淋的一卷卷的钩丝，我可以觉得整个船在那里抖，还有你用木棒打他的声音，就像砍树一样，我混身都是那甜甜的血腥气。
 
 “Can you really remember that or did I just tell it to you?“
+
 　　
 “你真的记得这些么，还是我告诉你的？”
+
 　　
 “I remember everything from when we first went together.“
+
 　　
 “自从我们第一次一块儿出去，样样我都记得。”
 　　
 The old man looked at him with his sun-burned, confident loving eyes.
+
+
