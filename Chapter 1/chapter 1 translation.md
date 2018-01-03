@@ -177,9 +177,12 @@ When the wind was in the east a smell came across the harbour from the shark fac
 　　
 “I remember everything from when we first went together.“
 
-　　
+
 “自从我们第一次一块儿出去，样样我都记得。”
 　　
 The old man looked at him with his sun-burned, confident loving eyes.
+
+老人用他那日。。的，有自信心的眼睛爱恋地看着他。
+
 
 
