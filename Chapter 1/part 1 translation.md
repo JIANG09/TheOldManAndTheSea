@@ -150,7 +150,7 @@ When the wind was in the east a smell came across the harbour from the shark fac
 
 “No. Go and play baseball. I can still row and Rogelio will throw the net.“
 
-　　
+
 “不用了。去打棒球吧。我还能划船，罗格略会帮我撒网。”
 
 “I would like to go. If I cannot fish with you, I would like to serve in some way.“
