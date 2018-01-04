@@ -208,10 +208,14 @@ The old man looked at him with his sun-burned, confident loving eyes.
 
 “你要是我的孩子，我一定带你去碰碰运气，”他说。“可你是你爸爸妈妈的孩子，你又跟了一条运气很好的船。”
 
+> 你现在这条船又运气好。
+
 “May I get the sardines? I know where I can get four baits too.“
 
 
 “我去弄些沙丁鱼来罢？我知道哪儿能弄到四条鱼饵。”
+
+> 我去弄点沙汀鱼好么？我还知道有一个地方可以弄到四个饵。
 　
  
 “I have mine left from today. I put them in salt in the box.“
@@ -231,6 +235,7 @@ The old man looked at him with his sun-burned, confident loving eyes.
 
 “一条，” 老人说。他的希望和信心从没离开过，在微风中更加清新。
 
+> 他从来没有失去希望和信心。但是现在它们变得更清新有力了，就像一阵风刮起来一样。
 
 “Two,“ the boy said.
 
@@ -248,19 +253,23 @@ The old man looked at him with his sun-burned, confident loving eyes.
 
 
 “我愿意去偷，”孩子说。“不过这些是买的。”
+
+> 我不是不肯偷，孩子说，“但这是我买的。”
 　
  
 “Thank you,“ the old man said. He was too simple to wonder when he had attained humility. But he knew he had attained it and he knew it was not disgraceful and it carried no loss of true pride.
 
 
 “谢谢你，”老人说。他人很简单，
-　　
-  
+
+> “谢谢你，” 老人说。他竟能够这样谦虚－－他太单纯了，以至都没有奇怪自己什么时候才达到这样谦虚的地步。但是他知道他很谦虚，他也知道谦逊并不丢脸，而且也无伤他真正的自尊心。
+  
 “Tomorrow is going to be a good day with this current,“ he said.
 
 
 “看这海流，明天天气不错，”他说。
 
+> “明天一定收获好，有这潮水。” 他说。
 
 “Where are you going?“ the boy asked.
 
@@ -273,12 +282,16 @@ The old man looked at him with his sun-burned, confident loving eyes.
 
 “往远处去。等风向偏转，再往回走。天没亮，我就要出发。”
 
+> “老远的，等风转了向再回来。我要天亮前就出去。”
+
+
 
 “I’ll try to get him to work far out,“ the boy said. “Then if you hook something truly big we can come to your aid.“
 
 
 “我想法让他也去远处，”孩子说。“要是你真的钓到了一条大的，我们可以来帮你。”
-　
+
+> 我来试着叫他也到远处去打鱼， 孩子说，“这样假使你钓着一条真正大的，我们可以来帮你的忙。”
  
 “He does not like to work too far out.“
 
@@ -289,8 +302,9 @@ The old man looked at him with his sun-burned, confident loving eyes.
 “No,“ the boy said. “But I will see something that he cannot see such as a bird working and get him to come out after dolphin.“
 
 
-“他不喜欢，” 孩子说。“不过我会看见他看不见的东西，比如鸟儿在空中盘旋，我也会让他追赶海豚。”
-　
+“是的，” 孩子说。“不过我会看见他看不见的东西，比如鸟儿在空中盘旋，我也会让他追赶海豚。”
+
+> “是的，” 孩子说。“但是有些东西他看不见的，我看得见，譬如有一只鸟在那里捉鱼，那我就可以叫他去钓。。”
  
 “Are his eyes that bad?“
 
@@ -301,7 +315,7 @@ The old man looked at him with his sun-burned, confident loving eyes.
 “He is almost blind.“
 
 
-“几乎快瞎了。”
+“差不多瞎了。”
 　
  
 “It is strange,“ the old man said. “He never went turtle-ing. That is what kills the eyes.“
@@ -326,6 +340,8 @@ The old man looked at him with his sun-burned, confident loving eyes.
 
 
 “不过你力气够对付一条真正的大鱼吗？”
+
+> 可是你现在对付一条真正的大鱼，力气够不够？
 　　
   
 “I think so. And there are many tricks.“
@@ -337,5 +353,7 @@ The old man looked at him with his sun-burned, confident loving eyes.
 “Let us take the stuff home,“ the boy said. “So I can get the cast net and go after the sardines.“
 
 
-“我们把东西拿回家吧，” 男孩说。 “然后我拿上渔网，去捕些沙丁鱼。”
+“我们把东西拿回家吧，” 男孩说。 “我好去拿网，去捕些沙丁鱼。”
+
+> 我们来把东西拿回去吧，孩子说，我好去拿网， 再去弄沙汀鱼。
 
