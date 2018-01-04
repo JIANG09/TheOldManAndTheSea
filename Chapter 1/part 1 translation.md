@@ -56,7 +56,7 @@ The old man had taught the boy to fish and the boy loved him.
 
 > “但是你记得有一次你八十七天没打到鱼，然后我们接连三个星期，天天捉到大鱼。”
 
-　
+
 “I remember,“ the old man said. “I know you did not leave me because you doubted.“
 
 
@@ -74,13 +74,14 @@ The old man had taught the boy to fish and the boy loved him.
 
 >“是爸爸叫我走的。我是一个小孩，我得要听他的话。”
 
-　　
+
 “I know,“ the old man said. “It is quite normal.“
 
 我知道，老人说，这太正常不过了。
 
 
 >“我知道，”老人说。“这是很正常的。”　
+
 
 “He hasn’t much faith.“
 
@@ -98,7 +99,7 @@ The old man had taught the boy to fish and the boy loved him.
 
 > “他没有，”老人说。“可是我们有。是不是？”
 
-　　
+
 “Yes,“ the boy said. “Can I offer you a beer on the Terrace and then we’ll take the stuff home.“
 
 
@@ -107,7 +108,7 @@ The old man had taught the boy to fish and the boy loved him.
 
 > “是的，”孩子说。“我请你到露天酒店吃杯啤酒，行不行，然后我们把东西 拿回去。”
 
-　　
+
 “Why not?“ the old man said. “Between fishermen.“
 
 
@@ -140,69 +141,48 @@ When the wind was in the east a smell came across the harbour from the shark fac
 
 “嗳，” 老人说。他手握酒杯，正想着好多年前的事。
 
-　　
+
 “Can I go out to get sardines for you for tomorrow?“
 
 
 “我去弄点沙丁鱼，给你明天用罢？”
 
-　　
-“No. Go and play baseball. I can still row and Rogelio will throw the net.“
 
+“No. Go and play baseball. I can still row and Rogelio will throw the net.“
 
 　　
 “不用了。去打棒球吧。我还能划船，罗格略会帮我撒网。”
 
-
-　　
 “I would like to go. If I cannot fish with you, I would like to serve in some way.“
-
 
 
 “我很想去。如果不能和你一起捕鱼，我想多少帮你做点事。”
 
 
-
 > 我很想去，如果我不能够跟你一块儿打鱼，我想给你做点什么别的事。
-
 
 
 “You bought me a beer,“ the old man said. “You are already a man.“
 
-
-
 “你请我吃了杯啤酒，”老人说。“你已经是个大人啦。”
 
-　　
-  
 “How old was I when you first took me in a boat?“
-
-
 
 “第一回跟你捕鱼，我有多大？”
 
-
-
 > 你第一次带我到船上去的时候，我几岁?
-
-
 
 “Five and you nearly were killed when I brought the fish in too green and he nearly tore the boat to pieces. Can you remember?“
 
 
-　　
 “你五岁。有一次我把一条鱼拖上船，它胡蹦乱跳，差一点把船弄散架，你差一点送了命。还记得吗？”
-
 
 
 > 五岁。你差一点送了命，那天还没到时候，我就把鱼拖上来，他差点把船弄碎，你记得吗？
 
-
-
 “I can remember the tail slapping and banging and the thwart breaking and the noise of the clubbing. I can remember you throwing me into the bow where the wet coiled lines were and feeling the whole boat shiver and the noise of you clubbing him like chopping a tree down and the sweat blood smell all over me.“
 
-　
- 
+
 “我记得，它的尾巴使劲拍打着，撞击着，船的横梁断了，棍棒敲击的声音。我还记得你把我扔到船头盘绕的钩丝那，感觉整条船都在颤抖，你敲击那鱼，就像在劈砍一棵树，我周围都是血汗味。”
 
 
@@ -212,34 +192,21 @@ When the wind was in the east a smell came across the harbour from the shark fac
 
 “Can you really remember that or did I just tell it to you?“
 
-
-　　
 “你真的记得这些么，还是我告诉你的？”
 
-
-　　
 “I remember everything from when we first went together.“
-
-
 
 “自从我们第一次一块儿出去，样样我都记得。”
 
-
-
 The old man looked at him with his sun-burned, confident loving eyes.
-
 
 老人看着他，一双眼睛饱经日晒，自信坚定，充满慈爱。
 
-
 > 老人用他那日的、有自信心的眼睛爱怜地望着他。
-
 
 “If you were my boy I’d take you out and gamble,“ he said. “But you are your father’s and your mother’s and you are in a lucky boat.“
 
-
 “你要是我的孩子，我一定带你去碰碰运气，”他说。“可你是你爸爸妈妈的孩子，你又跟了一条运气很好的船。”
-
 
 “May I get the sardines? I know where I can get four baits too.“
 
