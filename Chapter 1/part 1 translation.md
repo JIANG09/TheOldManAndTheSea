@@ -24,23 +24,27 @@ Everything about him was old except his eyes and they were the same color as the
 
 > 他身上的一切全是老的，除了他的眼睛，眼睛和大海一个颜色，很愉快，没有战败过。
 
+
 “Santiago,“ the boy said to him as they climbed the bank from where the skiff was hauled up. “I could go with you again. We’ve made some money.
+
 
 圣地亚哥。男孩子一边说，一边和老人一起拖船上岸。“我又可以和你捕鱼了。我们赚到些钱了。”
 
 >“山蒂挨戈，” 那孩子对他说，他们把小船拖到岸上，正从那里爬上去，“我又可以和你一起同去了。我们赚了点钱。”
 
-　　
+
 The old man had taught the boy to fish and the boy loved him.
 
 老人教男孩如何捕鱼，男孩很爱老人。
 
 >老人教了这孩子怎样打鱼，孩子爱他。
 
-　　
+
 “No,“ the old man said. “You’re with a lucky boat. Stay with them.“
 
+
 不，老人说，你跟着这只幸运垂青的船。和他们呆在一起。
+
 
 > “不”，老人说。“你现在这条船运气好。你跟着他们吧。”
 
@@ -55,23 +59,31 @@ The old man had taught the boy to fish and the boy loved him.
 　
 “I remember,“ the old man said. “I know you did not leave me because you doubted.“
 
+
 我记得。老人说，你没离开我，是因为你有疑问。这些我都知道。　　
+
 
 >“我记得，”老人说。“我知道你不是因为疑心我运气坏所以离开了我。”　　
 
+
 “It was papa made me leave. I am a boy and I must obey him.“
 
+
 是爸爸要我离开。我是他的儿子，只能听他的。　
+
 
 >“是爸爸叫我走的。我是一个小孩，我得要听他的话。”
 
 　　
 “I know,“ the old man said. “It is quite normal.“
+
 我知道，老人说，这太正常不过了。
+
 
 >“我知道，”老人说。“这是很正常的。”　
 
 “He hasn’t much faith.“
+
 
 他信念不足。　
 
@@ -80,12 +92,15 @@ The old man had taught the boy to fish and the boy loved him.
 
 “No,“ the old man said. “But we have. Haven’t we?“
 
+
 是啊。老人所，但是我们有信念，不是吗？　
+
 
 > “他没有，”老人说。“可是我们有。是不是？”
 
 　　
 “Yes,“ the boy said. “Can I offer you a beer on the Terrace and then we’ll take the stuff home.“
+
 
 是的。男孩说，我给你买杯啤酒，然后我们把东西弄回家，怎么样？
 
@@ -95,7 +110,9 @@ The old man had taught the boy to fish and the boy loved him.
 　　
 “Why not?“ the old man said. “Between fishermen.“
 
+
 何乐而不为呢？老人说，和捕鱼人们一起喝酒。
+
 
 > “有什么不行呢？” 老人说。 “大家都是渔夫。”
 
