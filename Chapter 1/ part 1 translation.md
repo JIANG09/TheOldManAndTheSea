@@ -44,18 +44,23 @@ The old man had taught the boy to fish and the boy loved him.
 
 > “不”，老人说。“你现在这条船运气好。你跟着他们吧。”
 
+
 “But remember how you went eighty-seven days without fish and then we caught big ones every day for three weeks.“
+
 但是你记不记得，你出海87天，一条鱼都没不到；我们这三周，每天都能捕到大鱼。
+
 
 > “但是你记得有一次你八十七天没打到鱼，然后我们接连三个星期，天天捉到大鱼。”
 
 　
 “I remember,“ the old man said. “I know you did not leave me because you doubted.“
+
 我记得。老人说，你没离开我，是因为你有疑问。这些我都知道。　　
 
 >“我记得，”老人说。“我知道你不是因为疑心我运气坏所以离开了我。”　　
 
 “It was papa made me leave. I am a boy and I must obey him.“
+
 是爸爸要我离开。我是他的儿子，只能听他的。　
 
 >“是爸爸叫我走的。我是一个小孩，我得要听他的话。”
@@ -67,18 +72,21 @@ The old man had taught the boy to fish and the boy loved him.
 >“我知道，”老人说。“这是很正常的。”　
 
 “He hasn’t much faith.“
+
 他信念不足。　
 
 >“他没有多少信心。”
 
 
 “No,“ the old man said. “But we have. Haven’t we?“
+
 是啊。老人所，但是我们有信念，不是吗？　
 
 > “他没有，”老人说。“可是我们有。是不是？”
 
 　　
 “Yes,“ the boy said. “Can I offer you a beer on the Terrace and then we’ll take the stuff home.“
+
 是的。男孩说，我给你买杯啤酒，然后我们把东西弄回家，怎么样？
 
 
@@ -124,65 +132,226 @@ When the wind was in the east a smell came across the harbour from the shark fac
 　　
 “No. Go and play baseball. I can still row and Rogelio will throw the net.“
 
+
 　　
 “不用了。去打棒球吧。我还能划船，罗格略会帮我撒网。”
+
 
 　　
 “I would like to go. If I cannot fish with you, I would like to serve in some way.“
 
 
+
 “我很想去。如果不能和你一起捕鱼，我想多少帮你做点事。”
+
 
 
 > 我很想去，如果我不能够跟你一块儿打鱼，我想给你做点什么别的事。
 
 
+
 “You bought me a beer,“ the old man said. “You are already a man.“
+
 
 
 “你请我吃了杯啤酒，”老人说。“你已经是个大人啦。”
 
 　　
+  
 “How old was I when you first took me in a boat?“
+
 
 
 “第一回跟你捕鱼，我有多大？”
 
 
+
 > 你第一次带我到船上去的时候，我几岁?
 
 
+
 “Five and you nearly were killed when I brought the fish in too green and he nearly tore the boat to pieces. Can you remember?“
+
 
 　　
 “你五岁。有一次我把一条鱼拖上船，它胡蹦乱跳，差一点把船弄散架，你差一点送了命。还记得吗？”
 
 
+
 > 五岁。你差一点送了命，那天还没到时候，我就把鱼拖上来，他差点把船弄碎，你记得吗？
+
 
 
 “I can remember the tail slapping and banging and the thwart breaking and the noise of the clubbing. I can remember you throwing me into the bow where the wet coiled lines were and feeling the whole boat shiver and the noise of you clubbing him like chopping a tree down and the sweat blood smell all over me.“
 
-　　
+　
+ 
 “我记得，它的尾巴使劲拍打着，撞击着，船的横梁断了，棍棒敲击的声音。我还记得你把我扔到船头盘绕的钩丝那，感觉整条船都在颤抖，你敲击那鱼，就像在劈砍一棵树，我周围都是血汗味。”
+
 
 
 > 我记得那尾巴拍拍砰砰的打着，划船人的座位也破了，还有你用木棒打他的声音。我记得你把我丢到船头去，那儿堆着湿淋淋的一卷卷的钩丝，我可以觉得整个船在那里抖，还有你用木棒打他的声音，就像砍树一样，我混身都是那甜甜的血腥气。
 
+
 “Can you really remember that or did I just tell it to you?“
+
 
 　　
 “你真的记得这些么，还是我告诉你的？”
+
 
 　　
 “I remember everything from when we first went together.“
 
 
+
 “自从我们第一次一块儿出去，样样我都记得。”
-　　
+
+
+
 The old man looked at him with his sun-burned, confident loving eyes.
 
-老人用他那日。。的，有自信心的眼睛爱恋地看着他。
+
+老人看着他，一双眼睛饱经日晒，自信坚定，充满慈爱。
 
 
+> 老人用他那日的、有自信心的眼睛爱怜地望着他。
+
+
+“If you were my boy I’d take you out and gamble,“ he said. “But you are your father’s and your mother’s and you are in a lucky boat.“
+
+
+“你要是我的孩子，我一定带你去碰碰运气，”他说。“可你是你爸爸妈妈的孩子，你又跟了一条运气很好的船。”
+
+
+“May I get the sardines? I know where I can get four baits too.“
+
+
+“我去弄些沙丁鱼来罢？我知道哪儿能弄到四条鱼饵。”
+　
+ 
+“I have mine left from today. I put them in salt in the box.“
+
+
+“今天我还有剩余的。我把他们放在盒子里腌着。”
+
+
+“Let me get four fresh ones.“
+
+
+“那我给你弄四条新鲜的来。”
+　
+ 
+“One,“ the old man said. His hope and his confidence had never gone. But now they were freshening as when the breeze rises.
+
+
+“一条，” 老人说。他的希望和信心从没离开过，在微风中更加清新。
+
+
+“Two,“ the boy said.
+
+
+“两条，”孩子说。
+
+
+“Two,“ the old man agreed. “You didn’t steal them?“
+
+
+“两条吧，”老人同意了。“你不会偷吧？”
+
+
+“I would,“ the boy said. “But I bought these.“
+
+
+“我愿意去偷，”孩子说。“不过这些是买的。”
+　
+ 
+“Thank you,“ the old man said. He was too simple to wonder when he had attained humility. But he knew he had attained it and he knew it was not disgraceful and it carried no loss of true pride.
+
+
+“谢谢你，”老人说。他人很简单，
+　　
+  
+“Tomorrow is going to be a good day with this current,“ he said.
+
+
+“看这海流，明天天气不错，”他说。
+
+
+“Where are you going?“ the boy asked.
+
+
+“你准备明天上哪儿？”孩子问。
+
+
+“Far out to come in when the wind shifts. I want to be out before it is light.“
+
+
+“往远处去。等风向偏转，再往回走。天没亮，我就要出发。”
+
+
+“I’ll try to get him to work far out,“ the boy said. “Then if you hook something truly big we can come to your aid.“
+
+
+“我想法让他也去远处，”孩子说。“要是你真的钓到了一条大的，我们可以来帮你。”
+　
+ 
+“He does not like to work too far out.“
+
+
+“他可不喜欢去很远的地方。”
+　
+ 
+“No,“ the boy said. “But I will see something that he cannot see such as a bird working and get him to come out after dolphin.“
+
+
+“他不喜欢，” 孩子说。“不过我会看见他看不见的东西，比如鸟儿在空中盘旋，我也会让他追赶海豚。”
+　
+ 
+“Are his eyes that bad?“
+
+
+“他眼睛这么不好吗？”
+　
+ 
+“He is almost blind.“
+
+
+“几乎快瞎了。”
+　
+ 
+“It is strange,“ the old man said. “He never went turtle-ing. That is what kills the eyes.“
+
+
+“这可怪了，”老人说。“他从没捕过海龟，那才伤眼睛呐。”
+　　
+  
+“But you went turtle-ing for years off the Mosquito Coast and your eyes are good.“
+
+
+“可你在蚊子海岸捕海龟那么多年，你的眼睛就很好。”
+　　
+  
+“I am a strange old man.“
+
+
+“我是个怪老头儿。”
+　　
+  
+“But are you strong enough now for a truly big fish?“
+
+
+“不过你力气够对付一条真正的大鱼吗？”
+　　
+  
+“I think so. And there are many tricks.“
+
+
+“我想是的，技巧也很多。”
+　
+ 
+“Let us take the stuff home,“ the boy said. “So I can get the cast net and go after the sardines.“
+
+
+“我们把东西拿回家吧，” 男孩说。 “然后我拿上渔网，去捕些沙丁鱼。”
 
